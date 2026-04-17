@@ -53,9 +53,9 @@ I work at the intersection of **civil engineering practice, teaching, and knowle
 
 ### 📫 Connect With Me
 
-* Email: [your-email@example.com](mailto:your-email@example.com)
-* LinkedIn: your-linkedin-profile
-* YouTube: your-channel-link
+* Email: er.santoshgyawali@gmail.com
+* LinkedIn: linkedin.com/in/santosh-gyawali-286814174
+* YouTube: https://youtube.com/@totalblend-sh9pl?si=4M1-KLc-vqod3n0m
 
 ---
 
